@@ -1,1 +1,1 @@
-# Tôi đang là sinh viên của trường đại học Duy Tân
+# Đại học Duy Tân
